@@ -11,4 +11,4 @@
 ![image](https://github.com/Gabrielmart99/informatica/assets/162645927/f3c2cc4e-e823-4f9f-bd35-1f41e60a3840)
 ![image](https://github.com/Gabrielmart99/informatica/assets/162645927/a07d24a0-167e-418f-a0b9-8c2ad4d9dd94)
 ![image](https://github.com/Gabrielmart99/informatica/assets/162645927/dd069a66-909f-4a74-8642-dbbfc2c1734e)
-![image](https://github.com/Gabrielmart99/informatica/assets/162645927/c6810b3b-50fe-43a6-8038-e1fc5f1e6d1c)
+
