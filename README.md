@@ -4,4 +4,6 @@
 ![image](https://github.com/Gabrielmart99/informatica/assets/162645927/cb0437fe-1e75-45de-9e0a-3ccc5ed69273)
 ![image](https://github.com/Gabrielmart99/informatica/assets/162645927/f499cd74-91c0-4cdd-ace8-fe7c5ba3e23e)
 ![image](https://github.com/Gabrielmart99/informatica/assets/162645927/2e2aa94f-01e6-4f72-abfa-cbe5db42f89a)
-
+![image](https://github.com/Gabrielmart99/informatica/assets/162645927/54bfb029-67c6-4bb0-819e-048a691db110)
+![image](https://github.com/Gabrielmart99/informatica/assets/162645927/f447956d-7521-4929-a001-c66c9667a41c)
+![image](https://github.com/Gabrielmart99/informatica/assets/162645927/36316d71-d7b3-410b-b31d-e03ececd5ed9)
