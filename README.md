@@ -13,3 +13,4 @@ PANELAS, SORVETES, E OUTROS.
 ![image](https://github.com/Gabrielmart99/informatica/assets/162645927/8fb3e787-4a8f-4779-87a9-d9cc5d77b501)
 ![image](https://github.com/Gabrielmart99/informatica/assets/162645927/f3c2cc4e-e823-4f9f-bd35-1f41e60a3840)
 ![image](https://github.com/Gabrielmart99/informatica/assets/162645927/a07d24a0-167e-418f-a0b9-8c2ad4d9dd94)
+![image](https://github.com/Gabrielmart99/informatica/assets/162645927/dd069a66-909f-4a74-8642-dbbfc2c1734e)
